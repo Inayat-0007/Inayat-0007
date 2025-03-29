@@ -1,5 +1,5 @@
 # INAYAT HUSSAIN  
-**(He/Him)**  
+
 🚀 **MERN Stack Developer | Problem-Solver & Agile Decision Maker**  
 🔥 **Passionate About GenAI, LLMs & Web3**  
 

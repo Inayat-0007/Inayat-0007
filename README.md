@@ -1,6 +1,6 @@
 <div align="center">
 
-# ⚡ INAYAT HUSSAIN QURESHI ⚡
+# ⚡ INAYAT HUSSAIN  ⚡
 ### 🧠 Senior AI Solutions Architect | 🏗️ Knowledge Architect
 
 <p align="center">
